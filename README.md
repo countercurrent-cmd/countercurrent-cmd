@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @countercurrent-cmd
+- 👀 I’m interested in... There is a reason I am on GitHub
+- 🌱 I’m currently learning Python and Programmin in General
+- 💞️ I’m looking to collaborate on... I am bad at working in team
+- 📫 How to reach me... I don't think so I will be able to help you..
+- 😄 Pronouns: He / Him
+- ⚡ Fun fact:... I am not funny...hehe
